@@ -1,1 +1,1 @@
-# Reskilling and Upskilling e learning plateform.
+# Reskilling  Upskilling E-learning Plateform.
